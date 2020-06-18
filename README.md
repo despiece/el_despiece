@@ -1,0 +1,2 @@
+# el_despiece
+Somos una colectiva artística que investiga la recuperación y transmisión de memorias ocultas por el sistema patriarcal.  Desde perspectivas feministas y a partir de los discursos del arte y la sociedad, desarrollamos acciones que reflexionan y buscan alternativas a los sistemas opresores.  Generamos dinámicas colaborativas para realizar talleres, laboratorios, intervenciones en espacio público, acciones conjuntas y pensamiento crítico.
